@@ -29,5 +29,5 @@ A reliable online stores usually attach a physical address or minimal contact ph
 
 
 Sources:
-https://zenodo.org/communities/best-laptops-for-students/about/ = Best laptops for college students
+http://dev.open-sankore.org/xwiki/bin/view/Best+Laptops+for+College+Students%28and+High+School%29/WebHome Best laptops for college students
 http://expendable.userecho.com/topics/3-best-ultrasonic-facial-machine-benefits/ => best ultrasonic facial machine benefit
