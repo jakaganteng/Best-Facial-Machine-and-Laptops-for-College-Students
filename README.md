@@ -5,7 +5,9 @@ Just by clicking a mouse or touching the screen, you can buy a wide range of onl
 
 Internet presence has clearly changed the shopping habits of modern society. They no longer require a lot of time in and out of stores looking for the need for all have been available online. Hmmm, it all looks very nice is not it?
 
-Despite promising the most convenient shopping experience, online shopping still requires precision. This is because there are some unscrupulous rogue who turns utilize this service for personal gain. As a result, you instead get the goods even dream like "donate" money freely.
+Despite promising the most convenient shopping experience, online shopping still requires precision. This is because there are some unscrupulous rogue who turns utilize this service for personal gain. As a result, you instead get the goods even dream like "donate" money freely.<br>
+Read: http://dev.open-sankore.org/xwiki/bin/view/Best+Laptops+for+College+Students%28and+High+School%29/WebHome Best laptops for college students
+<br>
 
  
 Eits, you do not need to worry or be afraid to shop online because there are tricks that can be done so that these activities remain fun. If you're curious, let's look at tips on how to safely shop online the following:
@@ -29,5 +31,5 @@ A reliable online stores usually attach a physical address or minimal contact ph
 
 
 Sources:
-http://dev.open-sankore.org/xwiki/bin/view/Best+Laptops+for+College+Students%28and+High+School%29/WebHome Best laptops for college students
-http://expendable.userecho.com/topics/3-best-ultrasonic-facial-machine-benefits/ => best ultrasonic facial machine benefit
+http://expendable.userecho.com/topics/3-best-ultrasonic-facial-machine-benefits/ => best ultrasonic facial machine benefit<br>
+http://slides.com/jutawanmuda/best-facial-machine-and-college-laptops/
